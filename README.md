@@ -1,2 +1,2 @@
 # gitdaya
-dayakar erripuku
+dayakar is god of world
